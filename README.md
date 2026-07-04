@@ -1,4 +1,4 @@
-# Hi there, I'm Samia Siddique
+# Hi there 👋, I'm Samia Siddique
 
 ### About Me
 
